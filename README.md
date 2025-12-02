@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Parveenkr511@gmail.com**
 
-- 📄 Know about my experiences [https://parveenkr511.github.io/resume/](https://parveenkr511.github.io/resume/)
+- 📄 Know about my experiences [link](https://docs.google.com/document/d/1vx5CQsYmTOaLn2KQCm28kBRosEYAgIwReWEUrTZgv3Q/edit?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
